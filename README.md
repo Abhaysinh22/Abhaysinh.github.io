@@ -45,7 +45,7 @@ Coming soon! Check out my repositories to see what I'm working on.
 I'd love to connect with you! Feel free to reach out through:
 
 - **GitHub**: [@Abhaysinh22](https://github.com/Abhaysinh22)
-- **Email**: [your-email@example.com](mailto:your-email@example.com)
+- **Email**: [solankiabhaysinh029@gmail.com](mailto:your-email@example.com)
 
 ---
 
